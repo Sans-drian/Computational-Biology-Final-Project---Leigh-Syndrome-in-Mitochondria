@@ -1,0 +1,1 @@
+# Computational-Biology-Final-Project---Leigh-Syndrome-in-Mitochondria
